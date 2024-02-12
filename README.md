@@ -5,7 +5,7 @@ Win Htut
 National Cyber City
 National Institute of Science and Technology - Myanmar
 
-winhtutonline@gmail.com
+researcherwinhtut@gmail.com
 09453741976
 https://www.facebook.com/nationalcybercity
 
